@@ -1,1 +1,3 @@
-# My-Tik
+# Terms of Service:
+
+# Privacy Policy:
